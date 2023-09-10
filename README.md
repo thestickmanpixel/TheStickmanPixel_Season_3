@@ -1,4 +1,5 @@
-![Season3](https://github.com/thestickmanpixel/Season_3/assets/95284026/10b307c9-a282-4d81-8c32-8883217b16d5)
+![Season3](https://github.com/thestickmanpixel/Season_3/assets/95284026/6344c89e-41aa-46ae-94f9-67700878c8e9)
+
 
 List of VHS episodes, Youtube Short, & Video Games:
 
