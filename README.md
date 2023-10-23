@@ -1,7 +1,7 @@
 ![Season3](https://github.com/thestickmanpixel/Season_3/assets/95284026/6344c89e-41aa-46ae-94f9-67700878c8e9)
 
 
-List of VHS episodes, Youtube Short, & Video Games:
+List of VHS episodes, Youtube Short, Original, & Video Games:
 
 With... 2023 & 2024!
 
@@ -17,7 +17,7 @@ With... 2023 & 2024!
 9. ???
 10. ???
 11. ???
-12. ???
+12. StickmanPixel New Glasses(Original): Oct 23, 2023
 13. ???
 14. ???
 15. ???
