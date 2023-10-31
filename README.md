@@ -14,7 +14,7 @@ With... 2023 & 2024!
 6. Ami & Yumi Goes Into The Store(VHS): Jul 27, 2023
 7. Bowser Jr's Basics Collection Game(Video Game): Coming Soon
 8. ???
-9. ???
+9. Marty's Birthday (1999)(VHS): Oct 31, 2023
 10. ???
 11. ???
 12. StickmanPixel New Glasses(Original): Oct 23, 2023
