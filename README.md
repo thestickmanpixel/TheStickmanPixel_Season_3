@@ -12,12 +12,14 @@ With... 2023 & 2024!
 4. Pac-man Minix (Video Game): May 27, 2023
 5. Hot Ziggity(Short): Jul 11, 2023
 6. Ami & Yumi Goes Into The Store(VHS): Jul 27, 2023
-7. Bowser Jr's Basics Collection Game(Video Game): Coming Soon
-8. Despicable Me: Minion Pie Fight! (VHS): Nov 30, 2023
-9. Marty's Birthday (1999)(VHS): Oct 31, 2023
-10. ???
-11. ???
-12. StickmanPixel New Glasses(Original): Oct 23, 2023
+7. StickmanPixel New Glasses(Original): Oct 23, 2023
+8. ???
+9. Bowser Jr's Basics Collection Game(Video Game): Coming Soon
+10. Despicable Me: Minion Pie Fight! (VHS): Nov 30, 2023
+11. Marty's Birthday (1999)(VHS): Oct 31, 2023
+12. ???
 13. ???
 14. ???
 15. ???
+16. ???
+17. ???
