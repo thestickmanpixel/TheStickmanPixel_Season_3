@@ -1,14 +1,16 @@
 ![Season3](https://github.com/thestickmanpixel/Season_3/assets/95284026/f7959fa2-56c9-4445-9c06-0f58fdebf356)
-
-
-
-
-
+ 
+ 
+ 
+ 
+ 
 List of Cartoon VHS, Youtube Shorts, Original, & Game!
+ 
+ 
+ 
 
 
-
-
+   
 1. Sonic Mania Minus (REMAKE)(VHS): Jan 28, 2023
 2. HOTEL MARIO TOASTER(APRIL FOOLS): Apr 1, 2023
 3. [NEW] Pac-Man Play Golf(VHS): May 22, 2023
