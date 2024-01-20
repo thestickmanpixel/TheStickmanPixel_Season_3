@@ -1,9 +1,9 @@
 ![Season3](https://github.com/thestickmanpixel/Season_3/assets/95284026/f7959fa2-56c9-4445-9c06-0f58fdebf356)
 
 
-List of VHS episodes, Youtube Short, Original, & Video Games:
+List of VHS episodes, Youtube Short, Original, & Video Games!
 
-With... 2023 & 2024!
+
 
 
 1. Sonic Mania Minus (REMAKE)(VHS): Jan 28, 2023
