@@ -4,7 +4,7 @@
  
  
  
-List of Cartoon VHS, Youtube Shorts, Original, & Game!
+List of Cartoon VHS, Shorts, Original, & Game!
  
  
  
