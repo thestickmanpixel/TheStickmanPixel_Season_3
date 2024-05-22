@@ -21,7 +21,7 @@ List of Cartoon VHS, Shorts, Original, & Game!
 | 5. | [Hot Ziggity](https://github.com/thestickmanpixel/TheStickmanPixel_Season_3/releases/tag/5_HOT_ZIGGITY) | Short | Jul 11, 2023 |
 | 6. | [Ami & Yumi Goes Into The Store](https://github.com/thestickmanpixel/TheStickmanPixel_Season_3/releases/tag/6_AMI_%26_YUMI_GOES_INTO_THE_STORE) | VHS | Jul 27, 2023 |
 | 7. | [StickmanPixel New Glasses](https://github.com/thestickmanpixel/TheStickmanPixel_Season_3/releases/tag/7_NEWGLASSES) | Original | Oct 23, 2023 |
-| 8. | [Bowser Jr's Basics Collection Game](https://github.com/thestickmanpixel/TheStickmanPixel_Season_3/releases/tag/8_BOWSER_JRS_BASICS_COLLECTION_GAME) | Game | Coming Soon |
+| 8. | [Bowser Jr's Basics Collection Game](https://github.com/thestickmanpixel/TheStickmanPixel_Season_3/releases/tag/8_BOWSER_JRS_BASICS_COLLECTION_GAME) | Game | May 22, 2024 |
 | 9. | [Despicable Me: Minion Pie Fight!](https://github.com/thestickmanpixel/TheStickmanPixel_Season_3/releases/tag/9_MINION_PIE_FIGHT) | VHS | Nov 30, 2023 |
 | 10. | [Marty's Birthday (1999)](https://github.com/thestickmanpixel/TheStickmanPixel_Season_3/releases/tag/10_MARTYS_BIRTHDAY) | VHS | Oct 31, 2023 |
 | 11. | ??? | ??? | ??? |
