@@ -28,9 +28,9 @@ List of Cartoon VHS, Shorts, Original, & Game!
 | 12. | [Pacster Step on a Lego](https://github.com/thestickmanpixel/TheStickmanPixel_Season_3/releases/tag/12_PACSTER_STEP_ON_A_LEGO) | Short | Apr 30, 2024 |
 | 13. | [TheFlowerBluePurplePixel Meets (REAL) TheStickmanPixel](https://github.com/thestickmanpixel/TheStickmanPixel_Season_3/releases/tag/13_TFBPP_MEETS_REAL_TSP) | Original, VHS | May 1, 2024 |
 | 14. | [SquareBob SpongeMix](https://github.com/thestickmanpixel/TheStickmanPixel_Season_3/releases/tag/14_SPONGEMIX) | Short | Jan 23, 2024 |
-| 15. | ??? | ??? | ??? |
+| 15. | Jeffy's basics Revenge V2.0 | Game | Coming Soon |
 | 16. | ??? | ??? | ??? |
 | 17. | ??? | ??? | ??? |
 | 18. | ??? | ??? | ??? |
 | 19. | ??? | ??? | ??? |
-| 20. | ??? | ??? | ??? |
+| 20. | Pac-man Country The Ghostly Adventures Edition V3.0 | Game | Coming Soon |
